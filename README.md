@@ -1,1 +1,1 @@
-# StuCo.github.io
+# Student Private Company
